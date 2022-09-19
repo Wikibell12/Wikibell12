@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Wikibell12
-- 👀 I’m interested in Splatoon, Zelda, Pokemon,anime(particularly my hero academia), undertale and deltarune and hollow knight. I also love coding and making card games.
+- 👀 I’m interested in Splatoon, Zelda, Pokemon,anime(particularly my hero academia), undertale and deltarune and hollow knight. I also love coding and making card games. I also love Japanese rhythm games like maimai dx and taiko no tatsujin.
 - 🌱 I’m currently learning pjs
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
